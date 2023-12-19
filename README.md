@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hnfPetra777
+- 👋 Hi, I’m Hanif
 - 👀 I’m interested in coding, sports, music, and artist
 - 🌱 I’m currently learning at my school 
 - 💞️ I’m looking to collaborate on the coding community
