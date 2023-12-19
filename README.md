@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Hanif
 - 👀 I’m interested in coding, sports, music, and artist
 - 🌱 I’m currently learning at my school 
-- 💞️ I’m looking to collaborate on the coding community
+- 💞️ I’m looking to collaborate on Minecraft community
 - 📫 How to reach me when i accomplished
 <!---
 hnfPetra777/hnfPetra777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
