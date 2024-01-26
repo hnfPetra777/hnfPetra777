@@ -1,4 +1,4 @@
-Welcome back to my Github profile folks! I barely active though.
+Welcome back to my Github profile folks! I barely active though. Here you can read my personal profile till now what you knoew
 - 👋 Hi, I’m Hanif
 - 👀 My hobby is reading comics, drawing, listening music and anything i love!
 - I'm also fan of sports too!
